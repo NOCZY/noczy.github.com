@@ -1,2 +1,2 @@
-# noczy.github.io
-Discord: https://discord.gg/enVtzeff5t
+# Noczy's Palace
+# Discord: https://discord.gg/enVtzeff5t
