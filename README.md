@@ -1,2 +1,2 @@
-# noczy.github.com
+# noczy.github.io
 nigga
