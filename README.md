@@ -1,2 +1,2 @@
 # noczy.github.io
-nigga
+Discord: https://discord.gg/enVtzeff5t
